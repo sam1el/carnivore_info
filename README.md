@@ -1,5 +1,28 @@
 ### Carnivore/Keto helpful info
 
+#### Dr's who Support carnivore
+
+- Dr Ken D Berry
+- Dr Shawn Baker
+- Dr Sten Ekberg
+- Dr Mindy Pelz
+- Dr Paul Mason
+- Dr Anthony Chaffee
+- Dr Anthony Jay
+- Dr Lisa Wiedman
+- Dr Cywes
+- Dr Phil Ovadia
+- Dr Zac Solt
+- Dr Sabrina Solt
+- Dr Jason Fung
+- Dr Georgia Ede
+- Dr Eric Westman
+- Dr Gary Fettke
+- Dr Micheal Eades
+- Dr Mary Eades
+
+----
+
 #### Books
 
 - [The Carnivore Code](https://www.amazon.com/Carnivore-Code-Unlocking-Returning-Ancestral/dp/B08ZZW165J/ref=sr_1_1?keywords=the+carnivore+code&qid=1666967805&qu=eyJxc2MiOiIyLjMzIiwicXNhIjoiMS45OCIsInFzcCI6IjIuMTMifQ%3D%3D&sprefix=The+carni%2Caps%2C88&sr=8-1) by Paul Saladino MD
