@@ -28,6 +28,9 @@
 - [The Carnivore Code](https://www.amazon.com/Carnivore-Code-Unlocking-Returning-Ancestral/dp/B08ZZW165J/ref=sr_1_1?keywords=the+carnivore+code&qid=1666967805&qu=eyJxc2MiOiIyLjMzIiwicXNhIjoiMS45OCIsInFzcCI6IjIuMTMifQ%3D%3D&sprefix=The+carni%2Caps%2C88&sr=8-1) by Paul Saladino MD
 - [The Carnivore Diet](https://www.amazon.com/Carnivore-Diet-Shawn-Baker/dp/162860350X/ref=asc_df_162860350X/?tag=hyprod-20&linkCode=df0&hvadid=385571509635&hvpos=&hvnetw=g&hvrand=14651546419978900234&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027284&hvtargid=pla-550048882508&psc=1&tag=&ref=&adgrpid=79288121235&hvpone=&hvptwo=&hvadid=385571509635&hvpos=&hvnetw=g&hvrand=14651546419978900234&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9027284&hvtargid=pla-550048882508) by Shawn Baker MD
 - [Complete Guide to Fasting](https://www.amazon.com/Complete-Guide-Fasting-Intermittent-Alternate-Day/dp/1628600012/ref=zg_bs_15248576011_sccl_1/134-6929848-9030114?pd_rd_i=1628600012&psc=1) by Jason Fung MD
+- [The lies my dr told me](https://www.amazon.com/Lies-My-Doctor-Told-Me-audiobook/dp/B07Y2VRMY8/ref=sr_1_1?keywords=lies+my+doctor+told+me+by+dr.+ken+berry&qid=1666969717&qu=eyJxc2MiOiIyLjIyIiwicXNhIjoiMS44MCIsInFzcCI6IjIuMDYifQ%3D%3D&sprefix=Lies+my+dr%2Caps%2C112&sr=8-1) by Dr Ken D Berry
+- [Carnivore Cure](https://www.amazon.com/Carnivore-Cure-Meat-Based-Nutrition-Elimination/dp/B093HKPS8K/ref=sr_1_1?crid=9905JR28OAD1&keywords=carnivore+cure&qid=1666969739&qu=eyJxc2MiOiIyLjIxIiwicXNhIjoiMS44OCIsInFzcCI6IjIuMDMifQ%3D%3D&s=audible&sprefix=carnivore+cure%2Caudible%2C83&sr=1-1) by Judy Chu
+- [Stay off my operating table](https://www.amazon.com/Stay-Off-Operating-Table-Metabolic/dp/B09L34FFMZ/ref=sr_1_1?keywords=stay+off+my+operating+table&qid=1666969761&qu=eyJxc2MiOiIyLjM2IiwicXNhIjoiMi4wMSIsInFzcCI6IjEuODUifQ%3D%3D&s=audible&sprefix=stay+of+m%2Caudible%2C83&sr=1-1) by Phil Ovadi
 
 
 
@@ -41,6 +44,16 @@ Most of these are going to be more Carnivore forward but to make them keto you c
 - [Steak and Butter gal](https://www.youtube.com/c/SteakandButterGal/playlists)
 - [Lillie Kane](https://www.youtube.com/c/LillieKane/playlists)
 - [Carnivore Camaraderie](https://www.youtube.com/c/CarnivoreCamaraderie/videos)
+- [Raymond nazon](https://www.youtube.com/user/rnazon/videos)
+- [Dr Cywes](https://www.youtube.com/c/DrCywesCarbAddictionDoc/playlists)
+- [Laura Spath](https://www.youtube.com/c/LauraSpath/videos)
+- [Kelly Hogan](https://www.youtube.com/channel/UCaKl8Lth6h6GWreFyeO1keA/playlists)
+- [Dr Paul Mason](https://www.youtube.com/c/DrPaulMason/videos)
+- [Mikhaila Peterson](https://www.youtube.com/c/MikhailaPetersonvideos/videos) <--- Not specific to diet but she's got lots of good info on carnivore because of her health issues
+- [Judy Chu](https://www.youtube.com/c/NutritionwithJudy/playlists) (Nutritionist)
+- [Bart Kay](https://www.youtube.com/c/BartKayNutritionScienceWatchdog/playlists)
+- [Amber O'Hearn](https://www.youtube.com/channel/UCaGCraBhCqXkRPGxVKLcs0A/videos)
+- [DrKiltz, MD](https://www.youtube.com/c/DrRobKiltzMD)
 
 ----
 
