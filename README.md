@@ -54,6 +54,7 @@ Most of these are going to be more Carnivore forward but to make them keto you c
 - [Bart Kay](https://www.youtube.com/c/BartKayNutritionScienceWatchdog/playlists)
 - [Amber O'Hearn](https://www.youtube.com/channel/UCaGCraBhCqXkRPGxVKLcs0A/videos)
 - [DrKiltz, MD](https://www.youtube.com/c/DrRobKiltzMD)
+- [Jason Fung](https://www.youtube.com/channel/UCoyL4iGArWn5Hu0V_sAhK2w)
 
 ----
 
