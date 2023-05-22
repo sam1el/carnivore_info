@@ -36,7 +36,7 @@
 
 #### Youtube Links
 
-Most of these are going to be more Carnivore forward but to make them keto you can add veg and fake sweeteners. Some of them will also mention keto options. The only real difference in the diets is the amount of carbs. 0 vs 20-50g. Veg is not a requirement for keto. Carnivore is animal products only. From these channels you'll find a lot of good info as well as more sources to look into. I don't want to flood you too much.
+Most of these are going to be more Carnivore forward but to make them keto you can add veg and fake sweeteners. Some of them will also mention keto options. The only real difference in the diets is the amount of carbs. 0 vs 20g. Veg is not a requirement for keto. Carnivore is animal products only. From these channels you'll find a lot of good info as well as more sources to look into. I don't want to flood you too much.
 
 - [Dr. Chaffee](https://www.youtube.com/channel/UCzoRyR_nlesKZuOlEjWRXQQ/videos)
 - [Dr. Ken Berry](https://www.youtube.com/c/KenDBerryMD/videos)
